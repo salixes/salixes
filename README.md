@@ -1,4 +1,4 @@
-- 👋 Hi, I’m SALIX
+- 👋 Hi, I’m SALIZ II 
 - 👀 I’m interested in YOU!
 - 🌱 I’m currently learning CODE.
 - 😄 Pronouns: OA
